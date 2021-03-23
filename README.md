@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @trungtran24h
+- 👀 I’m interested in web programming
+- 🌱 I’m currently learning HTML/CSS/JS
+- trungtran24h@gmail.com
+- Facebook.com/trungtran24h
+- Instagram.com/trungtran24h
+- Soundcloud.com/trungtran24h
